@@ -1,1 +1,1 @@
-# Spot-Instagramable_Bandung
+# Spot-Instagramable-Bandung
